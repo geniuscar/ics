@@ -1,1 +1,1 @@
-[Cover](https://creator.nightcafe.studio/creation/thPIwLsZXL7Fg8u8pihs)
+[Cover](https://creator.nightcafe.studio/creation/EPpKg5m4k8vqRoHRngWW)
